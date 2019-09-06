@@ -1,1 +1,0 @@
-# theminestileit.github.io
